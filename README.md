@@ -1,2 +1,1 @@
-#Riddle
-Why did the golfer put on a second pair of pants? 
+Why did the golfer put on a second pair of pants?
